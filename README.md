@@ -1,6 +1,6 @@
 # **[Terms of Service of Aura Discord Bot](https://top.gg/bot/885876809776893964)**
 
-![Aura Bot](https://cdn.discordapp.com/attachments/891178370442858526/891178505260396554/akito_banner.png)
+![Aura Bot](https://media.discordapp.net/attachments/1117448438183907348/1128386022774943794/IMG_20230711_233234.png)
 
 Here **Aura**/**We**/**Our** refers to ("**[bot](https://top.gg/bot/115872266568355910)**" or "**[developer](https://github.com/ana-nt69)**")
 
